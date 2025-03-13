@@ -1,2 +1,0 @@
-# Zephyraitos
-TOS and privacy
